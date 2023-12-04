@@ -1,1 +1,1 @@
-# krutika psycho
+# krutika 
